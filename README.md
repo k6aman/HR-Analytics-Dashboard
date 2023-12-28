@@ -1,2 +1,1 @@
-[HR_Analytics.pdf](https://github.com/k6aman/HR-Analytics-Dashboard/files/13785955/HR_Analytics.pdf)
-![iPhone11ProMax-iPhone11-iPhone11Pro-iPhoneXSMax-iPhoneXR-iPhoneXS-iPhoneX](https://github.com/k6aman/HR-Analytics-Dashboard/assets/122594632/7bf48674-e046-4145-9d44-0722db3f1bca)
+![HR_Analytics_page-0001](https://github.com/k6aman/HR-Analytics-Dashboard/assets/122594632/37d68dd3-b20f-4cc0-a169-8945415e7743)
